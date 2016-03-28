@@ -1,2 +1,2 @@
 # lct
-there is nothing
+There is nothing, go away!
